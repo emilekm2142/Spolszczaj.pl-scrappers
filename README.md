@@ -1,0 +1,1 @@
+# Spolszczaj.pl-scrappers
